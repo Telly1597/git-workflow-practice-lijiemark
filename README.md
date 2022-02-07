@@ -19,3 +19,5 @@ Therefore, it's interesting to think about Metaverse as the future but most of i
 
 ***Can you imagine Metaverse as the future?***
 
+## Mohamed Jalloh ## 
+1.  the future looks bright with Metaverse. However,  we first must have some honest conversation about how  Metaverse would impact our social life, and How to overcome those challenges. 
